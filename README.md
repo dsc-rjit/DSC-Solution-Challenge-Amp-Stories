@@ -1,1 +1,0 @@
-# DSC-Solution-Challenge-Amp-Stories-
